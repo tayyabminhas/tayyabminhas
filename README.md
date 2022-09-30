@@ -1,4 +1,4 @@
-**I'm Tayyab Minhas Malik with 10+ years of experience.**
+**I'm Tayyab Minhas with 10+ years of experience.**
 
 ✅ **WHY ME** ✅
 
